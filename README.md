@@ -7,4 +7,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 ![dIS](https://github.com/Moreirablue/Moreirablue/assets/171853620/64bcf27c-d58d-4017-83da-59f02eaf6b35)
 
-https://i.gifer.com/1g8K.gif
+
+![Uploading 1g8K (1).gif…]()
+
